@@ -4,6 +4,6 @@
 ## Z korporacji???
 ## Stwory Oloken'hai???
 ## Androidy
-## jakaś zwierzyna na polsce
+## jakaś zwierzyna na planecie
 ## Gourmand sen
 
