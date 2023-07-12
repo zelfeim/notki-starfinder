@@ -2,8 +2,10 @@
 
 - Anioł/Azata
 - Z korporacji???
-- Stwory Oloken'hai???
-- Androidy
-- jakaś zwierzyna na planecie
-- Gourmand sen
+- Jacek i jego załoga
+- Abominacje Oloken'hai
+- Androidy fanatycy, wyznawcy Lority
+- Bestie z planty Amoniakowej
+- Outsidery Boga Koszmarów
+- Gourmand sen, Anorektyczka
 
